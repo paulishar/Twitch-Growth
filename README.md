@@ -1,5 +1,5 @@
 # Twitch-Growth
-You can buy real Twitch viewws and followers cheap. Just go to the website displayed on the image. Type it on your web browser.
+You can buy real Twitch viewers and followers cheap. Just go to the website displayed on the image. Type it on your web browser.
 
 This is a serious matter, not to be taken lightly. Even if you currently have only a small following, buying Twitch viewers can significantly boost your numbers. These viewers will actively engage with your content while you enjoy your broadcasting.
 
